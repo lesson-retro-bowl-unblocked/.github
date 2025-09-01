@@ -93,5 +93,19 @@ Given its success, many wonder what’s next for Retro Bowl. Developers continue
 
 ---
 
-##
+# 🏈 Retro Bowl – Classic Football Fun on Your Screen
+
+If you’re a fan of American football, **Retro Bowl** is a must-play game 🎮. This pixel-style sports game combines old-school graphics with modern gameplay, giving you the feeling of playing a classic while still enjoying today’s excitement. The main goal is simple: build your dream team, manage your roster, and lead your players to victory in the championship 🏆.
+
+What makes Retro Bowl so addictive is its balance of strategy and action ⚡. As the coach, you’re responsible for drafting players, improving their skills, and making key decisions during the game. On the field, you control the offense directly – throwing perfect passes, running through defenders, and scoring touchdowns 🚀. The defense is handled automatically, which keeps the action fast-paced and easy to follow.
+
+🎯 **Controls are simple**:
+
+* Tap or click to pass the ball
+* Swipe to aim your throw
+* Use arrow keys or touch controls to move your player
+
+Because of its retro design, it runs smoothly on both PC and mobile devices 📱💻. Whether you have just a few minutes or want to spend hours mastering your team, Retro Bowl delivers endless fun. No wonder it has become one of the most popular unblocked games in schools and workplaces worldwide 🌍.
+
+---
 
